@@ -6,6 +6,7 @@
  
 #### A bit of me  ⟢ ★⸜ 🎧 ₊ ⋆ 🎸☆ ♪ 
 -  Technology Degree in Systems Analysis and Development
+-  Postgraduate student in Cyber Offensive & Red Team Operations
 -  pt-br / en / zh-cn 中文
 - 🎶 Music | 🍬 Drawing | ⭐ Sky Night | 🌊 Ocean | 🎪 Circus
 
